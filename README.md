@@ -65,4 +65,4 @@ Faculty of Sciences, Safi
 ✨ *“AI is not just technology, it’s a way to create smarter solutions for tomorrow.”*  
 
 📫 Let’s connect!  
-[GitHub](https://github.com/NoorShaimae) | [LinkedIn](#) | [Email](mailto:chaimakharbouch16@gmail.com)  
+[GitHub](https://github.com/ShaimaeKharbouch) | [LinkedIn](https://www.linkedin.com/in/shaimae-kharbouch-b6b710314/) | [Email](mailto:chaimakharbouch16@gmail.com)  
